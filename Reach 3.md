@@ -1,4 +1,4 @@
-Session 1 - 4th September 2014 {#session_1___4th_september_2014}
+Session 1 - 4th September 2014
 ------------------------------
 
 2 weeks on the water, in the [Featherheart](./Featherheart).
